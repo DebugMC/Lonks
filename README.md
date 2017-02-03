@@ -1,3 +1,3 @@
-# Lonks
+# My stuff
 
-Stuff will go here that I need to tell range, but not immediatly. May never get used idk.
+I just have this for stuff for school, ignore this :3
